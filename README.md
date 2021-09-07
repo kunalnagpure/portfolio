@@ -1,0 +1,2 @@
+# portfolio
+Hello, I am Kunal Nagpure Technical Associate at ESDS A continuous Learner, with good knowledge of Data Science , Deep Learning and Web Development. Posses strong coding and problem solving skills with hands on experience with latest technologies.  My career objective is to pursue a challenging career and be part of a progressive organisation to utilise my technical and analytical skills for growth of the organisation as well as to enchance my knowledge about new and emerging trends in IT sector.
